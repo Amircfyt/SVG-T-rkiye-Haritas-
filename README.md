@@ -6,3 +6,9 @@ Bu SVG Türkiye Haritasında İstanbul Asya ve Avrupa ayrı Kıbrıs da var hem 
 
 ## Lisans
 SVG Türkiye Haritası [MIT](LICENSE) lisansı ile lisanslanmıştır.
+
+My Email: Cheraghi.2007@outlook.com
+
+Please follow me♡
+
+
